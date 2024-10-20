@@ -1,5 +1,5 @@
 # 解决WhatsApp收不到验证码以及非官方问题
-联系方式：❤imichaelhere | 公众号：外贸赶路人
+联系方式：❤imichaelhere | [公众号：外贸赶路人](https://mp.weixin.qq.com/s/p3byV8yAOmHQNdU3FnEqxw)
 
 有偿解决，先解决再收费，不成功不收费
 
