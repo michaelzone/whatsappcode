@@ -1,4 +1,4 @@
-# 解决WhatsApp收不到验证码以及非官方问题
+# WhatsApp收不到短信验证码怎么办？如何解决whatsapp非官方问题？
 联系方式：❤[imichaelhere](https://github.com/michaelzone/cantonfair/blob/main/%E5%BE%AE%E4%BF%A1%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg) | [公众号：外贸赶路人](https://mp.weixin.qq.com/s/hy1f-k0iwrSMq-JtdB5SMg)
 
 辅助解决WhatsApp收不到验证码问题 网上的教程五花八门，但是，问题情况更是千变万化。
